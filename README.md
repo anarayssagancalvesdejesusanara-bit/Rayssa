@@ -1,3 +1,3 @@
 # Rayssa
- #$ apartir de 40$ corá logo 🙂
- boli de pote apartir de 35$
+ #$ apartir de 35$A45$  vc compra  isso ai 🙂
+ bolo 🍰 de pote apartir de 35$
